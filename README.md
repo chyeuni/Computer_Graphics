@@ -5,5 +5,5 @@
 video link : https://drive.google.com/file/d/1-js6giHNeXEve8EriYFStEavGa-sUNlB/view?usp=sharing
 
 ## HW4
-file linnk : https://drive.google.com/file/d/1IngIXD_CpW4ZR0ubjYPcA35J1HU6CZsS/view?usp=sharing  
+file link : https://drive.google.com/file/d/1IngIXD_CpW4ZR0ubjYPcA35J1HU6CZsS/view?usp=sharing  
 video link : https://drive.google.com/file/d/1Uo7_UelUT0x2ndbBbRgfjSLkd_fwJG8y/view?usp=sharing
